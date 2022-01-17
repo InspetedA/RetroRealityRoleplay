@@ -1,5 +1,5 @@
 # RetroRealityRoleplay
-RETRO REALITY Role when started on November 2021 with Alejandro Duke, Rhairad, Haven also Apekz
+RETRO REALITY ROLEPLAY when started on November 2021 with Alejandro Duke, Rhairad, Haven also Apekz
 This Gamemode are unfinnished so might expect bugs in it...just fix the bugs in it also credits
 to this gamemode by.
 
